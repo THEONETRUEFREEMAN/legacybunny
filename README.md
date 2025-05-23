@@ -1,6 +1,6 @@
-!()[https://file.garden/ZlkiZqgh4hF11d5U/customized/chance-elliot.gif]
+![](https://file.garden/ZlkiZqgh4hF11d5U/customized/chance-elliot.gif)
 
-hello thank you for taking the time to read this !()[https://file.garden/ZlkiZqgh4hF11d5U/pixels/white/white1.gif]
+hello thank you for taking the time to read this ![](https://file.garden/ZlkiZqgh4hF11d5U/pixels/white/white1.gif)
 
 i will use literally any name you give me i dont care
 i frequent the roblox fandom though i will move around depending on where my friends are and onto party island
