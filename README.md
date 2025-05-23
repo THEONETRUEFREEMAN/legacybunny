@@ -1,4 +1,4 @@
-!()[https://file.garden/ZlkiZqgh4hF11d5U/customized/chance-elliot.gif]{100:100px}
+!()[https://file.garden/ZlkiZqgh4hF11d5U/customized/chance-elliot.gif]
 
 hello thank you for taking the time to read this !()[https://file.garden/ZlkiZqgh4hF11d5U/pixels/white/white1.gif]
 
