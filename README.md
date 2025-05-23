@@ -11,4 +11,4 @@ if i dont reply i probably missed your message so if theres something important 
 i return energies ; if you're nice then im nice
 
 thank you for reading this have a good day okay love u bye
-![]](https://file.garden/ZlkiZqgh4hF11d5U/customized/chance-elliot.gif)
+![](https://file.garden/ZlkiZqgh4hF11d5U/customized/chance-elliot.gif)
