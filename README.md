@@ -14,7 +14,7 @@ im 100% down to be roleplayed with out of nowhere i think its really funny (whis
 
 if i dont reply i probably missed your message so if theres something important you need to tell me whisper me 
 
-i return energies ; if you're nice then im nice
+i return energies ; if you're nice then im nice , and the same goes for initiating conversation if you sit with me 
 
 thank you for reading this have a good day okay love u bye
 
