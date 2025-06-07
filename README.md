@@ -17,4 +17,4 @@ i return energies ; if you're nice then im nice , and the same goes for initiati
 
 thank you for reading this have a good day okay love u bye
 
-![]([https://file.garden/ZlkiZqgh4hF11d5U/customized/chance-elliot.gif](https://tenor.com/en-GB/view/builderman-telamon-shedletsky-roblox-friendship-gif-12140490854299407602))
+![](https://file.garden/ZlkiZqgh4hF11d5U/customized/builderman-telamon.gif)
